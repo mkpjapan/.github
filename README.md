@@ -1,4 +1,4 @@
-# Mankind Project Japan
+# Mankind Project Japan (MKP Japan)
 Tokyo men’s circle is part of The Mankind Project which supports men in finding their authentic selves and living their mission in the world.
 
 Some of the men in the Tokyo circle have attended a weekend experiential training called New Warrior Training Adventure. The weekend training is normally a prerequisite for sitting in circle, but there are no trainings in Japan, so we are open to new men coming to sit with us.
